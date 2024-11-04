@@ -1,5 +1,4 @@
 # pemKauaSantos
-Amo a Ana Jullya❤️
 
 seja bem vindo
 
